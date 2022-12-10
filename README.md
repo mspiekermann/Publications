@@ -1,1 +1,1 @@
-# publicatons
+# List of publications
